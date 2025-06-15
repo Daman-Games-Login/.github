@@ -2,7 +2,7 @@
 Enter your 10 digit registered mobile number, Password and login your daman club account. Reset your password using authorization code and get new account password. Claim your first joining bonus of Rs 5000. Official daman games login link provided. Use your Mobile number as your username and password for authentication, reset password using authorization code received on your registered mobile number.
 
 ## Daman Games login 🔗🔗 - [Official Login Link](91-clubapk.com)
-## Aletnative Link 🔗🔗 - [Daman Login]([url](https://damanclubb.in/daman-games-login-link/)
+## Aletnative Link 🔗🔗 - [Daman Login](https://damanclubb.in/daman-games-login-link)
 
 ## How to Login ?
 To get access to your daman account you need to provide correct credentials like your mobile number and password. We recommend you to use password which is mix of characters and numbers in order to enhance security of your daman account.
